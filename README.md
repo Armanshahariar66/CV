@@ -1,2 +1,2 @@
 # my-cv
-https://Armanshahariar.github.io/CV/
+https://armanshahariar66.github.io/my-cv/
